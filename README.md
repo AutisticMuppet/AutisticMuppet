@@ -5,15 +5,16 @@
 ![Green_screen_car_crash](https://github.com/user-attachments/assets/0295a430-5559-48ab-876c-c6e6ca3e403c)
 
 - 👋 Hi, I’m @ArcherBright123
-- 👀 I’m interested in Video Games, Programing, Hacking, 3D Printing and Homebrew
+- 👀 I’m interested in Video Games, Programing, Ethical Hacking, 3D Printing and Homebrew (Console Hacking)
 - 🌱 I’m currently learning hown to fit into society
-- 💞️ I’m looking to collaborate on hacking or Programming
+- 💞️ I’m looking to find a new project, perhaps a large one. You know, take my coding to the next level with some software development.
 - 📫 How to reach me: Just use the disscusions on one of my projects
 - 😄 Pronouns: Him, He. I am Asexual (Has no sexual feelings toward anyone or anything)
 - ⚡ Fun fact: Despite being under 18, I have at least 10 years programming experience (Started at 4 years old on Scratch)
+- ⚡I own Hacked Consoles (Hacked them all myself). They are... a 3DS, a DS, a Wii, a PS2, and a PS3.
 
 
-- Currently just seeing out school for a bit. Looking for more projects.
+- Currently waiting for Black Friday to purchase a Switch 2
 
 
 
