@@ -14,7 +14,7 @@
 - ⚡I own Hacked Consoles (Hacked them all myself). They are... a 3DS, a DS, a Wii, a PS2, and a PS3.
 
 
-- Currently waiting for Black Friday to purchase a Switch 2
+- Currently looking for a new programming project
 
 
 
