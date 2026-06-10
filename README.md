@@ -9,12 +9,13 @@
 - 🌱 I’m currently learning hown to fit into society
 - 💞️ I’m looking to find a new project, perhaps a large one. You know, take my coding to the next level with some software development.
 - 📫 How to reach me: Just use the disscusions on one of my projects
-- 😄 Pronouns: Him, He. I am Asexual (Has no sexual feelings toward anyone or anything)
-- ⚡ Fun fact: Despite being under 18, I have at least 10 years programming experience (Started at 4 years old on Scratch)
+
+- 😄 Pronouns: Him, He. 
+
 - ⚡I own Hacked Consoles (Hacked them all myself). They are... a 3DS, a DS, a Wii, a PS2, and a PS3.
 
 
-- Currently looking for a new programming project
+- Working on something
 
 
 
