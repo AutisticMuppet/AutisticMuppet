@@ -5,10 +5,9 @@
 ![Green_screen_car_crash](https://github.com/user-attachments/assets/0295a430-5559-48ab-876c-c6e6ca3e403c)
 
 - 👋 Hi, I’m @ArcherBright123
-- 👀 I’m interested in Video Games, Programing, Ethical Hacking, 3D Printing and Homebrew (Console Hacking)
+- 👀 I’m interested in Video Games, Programing, 3D Printing and Homebrew (Console Hacking)
 - 🌱 I’m currently learning hown to fit into society
-- 💞️ I’m looking to find a new project, perhaps a large one. You know, take my coding to the next level with some software development.
-- 📫 How to reach me: Just use the disscusions on one of my projects
+
 
 - 😄 Pronouns: Him, He. 
 
