@@ -5,16 +5,17 @@
 ![Green_screen_car_crash](https://github.com/user-attachments/assets/0295a430-5559-48ab-876c-c6e6ca3e403c)
 
 - 👋 Hi, I’m @AutisticMuppet
-- 👀 I’m interested in Video Games, Programing, 3D Printing and Homebrew (Console Hacking)
-- 🌱 I’m currently learning hown to fit into society
+- 👀 I’m interested in Programming, Games (Board, Card and Video Games), Homebrew and 3D Printing.
+- 🌱 I’m currently learning how to use CAD (Onshape).
 
 
 - 😄 Pronouns: He, Him.
 
-- ⚡I own Hacked Consoles (Hacked them all myself). They are... a 3DS, a DS, a Wii, a PS2, and a PS3.
+- ⚡I own MANY "Homebrewed" Consoles (Homebrewed them myself). They are... a 3DS, a DS, a Wii, a Wii U, a PS2, a PS3 and a PS4.
+- 
 
 
-- Working on something
+  
 
 
 
