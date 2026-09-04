@@ -12,7 +12,7 @@
 - 😄 Pronouns: He, Him.
 
 - ⚡I own MANY "Homebrewed" Consoles (Homebrewed them myself). They are... a 3DS, a DS, a Wii, a Wii U, a PS2, a PS3 and a PS4.
-- 
+- ChronicGambler is now Live!
 
 
   
