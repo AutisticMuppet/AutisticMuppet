@@ -4,12 +4,12 @@
 
 ![Green_screen_car_crash](https://github.com/user-attachments/assets/0295a430-5559-48ab-876c-c6e6ca3e403c)
 
-- 👋 Hi, I’m @ArcherBright123
+- 👋 Hi, I’m @AutisticMuppet
 - 👀 I’m interested in Video Games, Programing, 3D Printing and Homebrew (Console Hacking)
 - 🌱 I’m currently learning hown to fit into society
 
 
-- 😄 Pronouns: Him, He. 
+- 😄 Pronouns: He, Him.
 
 - ⚡I own Hacked Consoles (Hacked them all myself). They are... a 3DS, a DS, a Wii, a PS2, and a PS3.
 
@@ -18,11 +18,11 @@
 
 
 
-[![Archer's GitHub stats](https://github-readme-stats.vercel.app/api?username=ArcherBright123)](https://github.com/anuraghazra/github-readme-stats)
+[![AutisticMuppets's GitHub stats](https://github-readme-stats.vercel.app/api?username=AutisticMuppet)](https://github.com/anuraghazra/github-readme-stats)
 
 
 
-[![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=ArcherBright123)](https://github.com/anuraghazra/github-readme-stats)
+[![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=AutisticMuppet)](https://github.com/anuraghazra/github-readme-stats)
 
 
 <!---
