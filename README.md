@@ -6,7 +6,7 @@
 
 - 👋 Hi, I’m @AutisticMuppet
 - 👀 I’m interested in Programming, Games (Board, Card and Video Games), Homebrew and 3D Printing.
-- 🌱 I’m currently learning how to use CAD (Onshape).
+- 🌱 I’m currently modding my Switch.
 
 
 - 😄 Pronouns: He, Him.
